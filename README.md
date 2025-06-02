@@ -1,6 +1,6 @@
 # ✨ 唐诗宋词帝王会所在线观看完整版 ✨  
-👉 **【最新地址1】**：https://doufu.dizhi04.top/敬业  
-👉 **【最新地址2】**：https://回家.laosiji.cyou/爱国<br> 
+👉 **【最新地址1】**：https://doufu.dizhi04.top/队长  
+👉 **【最新地址2】**：https://回家.laosiji.cyou/惊奇队长<br> 
 👉 **【好记地址】**：https://wangjidizhi.com <br>  
 📌 **（复制地址到浏览器中打开）**  
 
